@@ -1,6 +1,5 @@
-# Linux
+# Linux - Аралық бақылау #1
 
-Аралық бақылау #1
-https://forms.gle/ZEWc6oSmJuWwSLNQ6
+Link: https://forms.gle/ZEWc6oSmJuWwSLNQ6
 
 
